@@ -1,5 +1,5 @@
 # Sarah Anjum
-**PhD Candidate in Computer Science** **Santa Clara University** [Email](mailto:sanjum2@scu.edu) | [LinkedIn](https://www.linkedin.com/in/sarah-anjum) | [Google Scholar](#)
+**PhD Candidate in Computer Science** **Santa Clara University** [Email](mailto:sanjum2@scu.edu) | [LinkedIn](https://www.linkedin.com/in/sarah-anjum) 
 
 ---
 
